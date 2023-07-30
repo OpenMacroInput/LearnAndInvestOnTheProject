@@ -6,5 +6,9 @@ On of the key feature that is linked to my game developer profession is the abil
 
 The goal of this year 2023-2024 is to learn if this hypothes.
 
-Google Slide link:
-https://docs.google.com/presentation/d/1kHrbzPaJPwdES8u4rsj3T-xTAZUmnjlwwTdYIlSD7oA/edit?usp=sharing
+
+Google Doc Pocket Pitch:  
+https://docs.google.com/document/d/1T6N9_9Or6Mg7r1r6FtW4COt0oKewqI4TX295U-2QKjE/edit?usp=sharing  
+
+Google Slide Minimum Pitch Deck:  
+https://docs.google.com/presentation/d/1kHrbzPaJPwdES8u4rsj3T-xTAZUmnjlwwTdYIlSD7oA/edit?usp=sharing  
